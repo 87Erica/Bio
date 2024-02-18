@@ -1,1 +1,17 @@
-# Bio
+# **<h3 style="text-align: center;">Erica Graham's Beautiful life</h3>**
+
+## **Embarking on Erica's Life**
+
+She was born in the gator crawling swaps of Shreveport, Louisiana, but raised in the bustling city of Atlanta, Georgia. Well, really the _suburbs_ of Atlanta, but as in the words of Erica, "The city life sounds _so much more_ exciting." Though her biological father resided in Louisiana, she never lacked fatherly love. In her two parent home, her mom and stepdad, whom she calls Pops, provided everything she needed to survive and thrive. During her childhood, she embraced both her dominant and feminine side as she explored the woods and old construction sites while playing with Barbie dolls and dollhouses. Her whole life was filled with stark contrast: sweet and bitter, light and dark, and black and white. Nevertheless, Erica found a way to excel beyond her wildest dreams.
+
+## **Academic Pedigree: A Journey through Knowledge**
+
+From a young age, Erica soaked in knowledge, from learning her abc's to tying her shoes. In school, she excelled. During her fifth grade year, she memorized the _entire_ multiplication chart! Effortlessly, Erica passed standardized tests, advancing her into honors math classes. By high school, all of her classes were honors. Academically, she left her friends behind, landing in a classroom full of puberty infested kids who looked nothing like her. Immediately, she became intimidated. Imtimidated by the work load, her classmates, and the unfamiliar terriotory. Discouraged, she tried to drop down to college prep classes. But this one teacher would not allow her to quit. It was the biology teacher at that. The class she hated the most. With renewed strength and really having no other options, Erica pressed forward, finishing her high school term with honors. Awarded the Hope Scholarship, she planned to go to college. But her plans were just thoughts and idea. With no guidance and no clue into what to do for the rest of her life, she took a detour. College was delayed. 13 years later, Erica enrolled in Ashland University and earned her BA in Communications. She is currently enrolled in Justice Through Code at Columbia University.
+
+## **Passions that Paint Erica's World**
+
+Before, Erica practiced the copy and paste method. She didn't discover her real interest and hobbies until her mid 20s. She followed what everyone else was doing. Once she discovered the gem inside of her, she never acted as someone else's clone again. She _loves_ writing. The art of piecing words together excites her. Erica believes in the power of words and thus believes that it can change nations. During her phrase of self-discovery, she also learned that she enjoys exercise. Though at first, she hated to sweat. Reconciling those two nuisances was hard for her, but she quickly adjusted. Simply put, she decided to taked a shower immediately after her exercise session. Last but not least, Erica enjoys teaching. It breaths life into her. It is a source of energy for her. Truly, she recognizes her grace to teach as a gift. Learning and helping others learn has fueled a passion in her that no one can put out.
+
+## **The Blueprint of Her Tommorrow**
+
+The framework of her tomorrow has been laid. A path has been set out for a successful career in the tech industry. Imagine that? A black female with a conviction on her record, breaking into a male dominated field. The sky is the limit. Or more so, Erica's mind will determine the cap. But her future plans of publishing a movie manuscript, writing books, and launching a teaching ministry shows that Erica is not planning to stop any time soon.
